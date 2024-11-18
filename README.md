@@ -25,4 +25,4 @@ Through this fellowship, I aim to:
 
 ## ✨ Let's Connect  
 Feel free to explore and follow my journey! 🚀  
-🌐 [LinkedIn Profile](https://www.linkedin.com/in/sample-profile) 
+🌐 [LinkedIn Profile](https://www.linkedin.com/in/salihu-muhammad-nura) 
